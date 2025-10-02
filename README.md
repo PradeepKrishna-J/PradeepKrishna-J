@@ -9,6 +9,6 @@
 
   💬 Ask me anything [here](www.linkedin.com/in/pradeepkrishna-j) - I’m happy to help!  
 
-  📫 Reach me at: pradeepkrishnaj2004@gmail.com 
+  📫 Reach me at: [mail]pradeepkrishnaj2004@gmail.com 
   </span>
 </p>
