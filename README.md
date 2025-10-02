@@ -7,8 +7,8 @@
 
   🚀 Currently exploring LLMs, Reinforcement Learning, and advanced AI frameworks.  
 
-  💬 Ask me anything [here](https://github.com/PradeepKrishna-J/PradeepKrishna-J/issues) - I’m happy to help!  
+  💬 Ask me anything [here](www.linkedin.com/in/pradeepkrishna-j) - I’m happy to help!  
 
-  📫 Reach me at: pradeep@example.com  
+  📫 Reach me at: pradeepkrishnaj2004@gmail.com 
   </span>
 </p>
